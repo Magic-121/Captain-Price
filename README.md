@@ -1,4 +1,4 @@
-# 𝗖𝝠𝝦𝝩𝝠𝝞𝝥 𝝦𝗥𝝞𝗖𝝽°™️ 🇱🇰 
+# 𝗟𝗶𝘃𝗲 𝘀𝗺𝗮𝗿𝘁 𝗣𝗹𝗮𝘆 𝗳𝗮𝘀𝘁
 <p align="center"><a href="https://t.me/MaX_Captain_Price_Robot"><img src="https://github.com/KisaraPesanjithPerera/Captain-Price/blob/main/database/logo.png" width="400"></a></p>
 <p align="center"><img src="https://stars.medv.io/EvamariaTG/EvaMaria.svg"></p>
 <p align="center">
